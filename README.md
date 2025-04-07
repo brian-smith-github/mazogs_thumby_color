@@ -10,3 +10,5 @@ using 'thonny' as usual.
 Video at:
 
 https://youtu.be/giZsqeoMpq4 
+
+RIP Don Priestley (1940-2024). Thanks for the fun.
